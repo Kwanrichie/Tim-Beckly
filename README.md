@@ -1,0 +1,2 @@
+# Tim-Beckly
+What is YUANPAY group ? (Also know as Ycc pay group)  Ycc pay group is a crypto market ... registered in china that allows Early coin holders...to get hold of  the new Chinese crypto currency called ycc coin. I'm sure many must have heard about this new crypto but if this is your first time of hearing about YCC coin then don't panic ..cause we're here to explain more about this new crypto and it's future potentials  Create your wallet using the link below and start Purchasing Immediately
